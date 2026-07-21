@@ -2,7 +2,7 @@
 
 **Name:** Akshat Kumar Singh  
 **Registration Number:** 23BCE11120  
-**Application Number:** IN26011815 
+**Application Number:** IN26011815   
 **Email:** singhakshat1225@gmail.com  
 
 ## Objective
